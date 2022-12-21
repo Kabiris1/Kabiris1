@@ -4,5 +4,5 @@
 - 🌱 I’m currently learning backend
 - 👯 I’m looking to collaborate on web developer
 - 📫 How to reach me: kabir.atblockchain@gmail.com
-- 😄 Pronouns: kha-bir
+- 😄 Pronouns: kha-beer
 - ⚡ Fun fact: I love my Job
